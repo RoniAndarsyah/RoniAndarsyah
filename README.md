@@ -5,7 +5,7 @@
 
 - Portal "KAMPUS DIGITAL MASA GITU?"
 - 👨‍💻 [https://www.roniandarsyah.com/](https://www.roniandarsyah.com/)
-- ⚡ Fun fact **I am funny😅**
+- ⚡ 😅**
 
 
 <!-- <h3 align="left">Languages and Tools:</h3>
